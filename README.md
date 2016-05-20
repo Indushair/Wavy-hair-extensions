@@ -1,0 +1,2 @@
+# Wavy-hair-extensions
+The Wavy hair extensions are most recent style in hair extensions to hit the glamour world, is the wavy clip in extension they can transmit your looker by giving you a complex look in just minutes. Wavy and curly hair is unquestionably in vogue right now, and is an exceptionally beautiful and sort after hairdo in the glamour industry.Wavy extensions offer you a few incredible advantages, for example, they are accessible in different hues, styles and lengths to suit individual tastes. http://www.indushairextensions.com/wavy-hair
